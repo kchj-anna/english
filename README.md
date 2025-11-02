@@ -11,6 +11,12 @@ plead(for ....//with sb) // stay put // negotiate // be concerned with // schola
 课内词汇
 Liberating counter humiliating well-intentioned(intent intention) painstakingly  assistant(assist) the perils and pleasures of university life  is a result of
 
+听力没有题目 题目在听力后面跟着念的 先听听力内容 但注意什么时候应该开始读答案 
+11.2
+课内单词 make a difference //  drop off   //  freshman  //  emotion  //  await  //  independence  //  liberal art  //   performance  //  commitment  //  launching pad  //
+cannot help but  //  in store  //  be about to  //  glance  //  intention  //  break down  //  magnitude  //  urgent  //  humankind  //  thrive  //  get by  //  torch  //
+instructive  //  imagination //  embrace  //  inquiry  //  community  //  self-assured  //  self-aware  //  obligation  //  passion // honesty  //  matter  //  
+
 
 
 
